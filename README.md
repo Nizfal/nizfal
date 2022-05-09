@@ -8,6 +8,8 @@ Here are some ideas to get you started:
 - 🔭 I’m currently working on cool 🤖
 - 🌱 I’m currently learning Python
 - 💬 Ask me about anything, I will try to help 😊
-- 📫 How to reach me: Ping me on Twitter
+- 📫 How to reach me: nizfaliqbal00@gmail.com
 - ⚡ Fun fact: Iam Crazyy 👣
 -->
+
+<br/> 
